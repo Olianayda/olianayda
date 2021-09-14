@@ -6,7 +6,8 @@
 - 🤔 I’m looking for help with https://muteit.app and https://unicornwitnesses
 - 💬 Ask me about UX design and Digital Product design
 - 📫 How to reach me: olianayda@gmail.com
-- 😄 Pronouns: she/here
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: looking for money, beacause I'm startuper and have no money for food
 
+REPOS: @unicornwitnesses @muteitapp
 
